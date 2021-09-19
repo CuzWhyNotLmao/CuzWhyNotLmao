@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me Discord
 Discord Tag : No U #8777
+YouTube : CuzWhyNot On YouTube
 
 <!---
 CuzWhyNotLmao/CuzWhyNotLmao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
